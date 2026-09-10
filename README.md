@@ -1,0 +1,1 @@
+# Pokeone-Full-Version
